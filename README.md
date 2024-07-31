@@ -12,4 +12,5 @@ Meu nome é Davi Ambrósio
 
 @Daviambrosio
 
-![](https://tenor.com/pt-BR/view/dribble-game-football-soccer-fan-gif-17125432)
+![image](https://github.com/user-attachments/assets/63855f52-f778-4998-b2f9-1a1dd8f713ab)
+
